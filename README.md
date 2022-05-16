@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Hnaim1
 - 👀 I’m interested in ...art
 - 🌱 I’m currently learning ...art 
-- 💞️ I’m looking to collaborate on ...art, photography and fim
+- 💞️ I’m looking to collaborate on ...art, photography and film
 - 📫 How to reach me ...not sure yet
 
 <!---
